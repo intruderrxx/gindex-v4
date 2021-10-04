@@ -82,4 +82,4 @@ Any Issues / Help Regarding Setup, Contact Through the telegram Group
 ![verify](imgs/verify.jpeg)
 
 
-#### Thanks - Support Me
+#### Thankyou! I hope you like it. Please support.
